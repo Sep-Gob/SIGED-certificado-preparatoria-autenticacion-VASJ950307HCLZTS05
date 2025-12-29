@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-VASJ950307HCLZTS05
-VASJ950307HCLZTS05
